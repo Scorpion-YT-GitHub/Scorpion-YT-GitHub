@@ -5,9 +5,7 @@ I'm interested in game development and tryng to learn HTML, Java, JS and more.
 
 I'm currently learning Python, JS, lua, Java and HTML.
 
-Pronouns: He/Him/Is
--
-Fun fact: that i am 13 years old, tryng to develop games (by the way my games isn't too good :/)
+Pronouns: He/Him/His, She/her. (im straight, so... give preference to use he/him.)
 
 <!---
 Scorpion-YT-GitHub/Scorpion-YT-GitHub is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
