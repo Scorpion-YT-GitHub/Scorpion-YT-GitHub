@@ -1,15 +1,13 @@
 Hello! GitHub users! i'm here to set my codes and my projects public for you! i think you are a game developer or a Webdesigner
-so imma here to try to help you.
+so, i'm here to try to help you.
 
-I'm interested in game development and tryng to learn HTML, Java, JS and more.
+I'm interested in game development and trying to learn HTML, Java, JS and more.
 
 I'm currently learning Python, JS, lua, Java and HTML.
 
-Pronouns: He/Him/His, She/her. (im straight, so... give preference to use he/him.)
+Pronouns: She/her.
 
 I love furries, but i am unsure if i am one of them.
-
-I absolutely love Toxikats, because they are so cute and fluffy!
 
 My main language is Portuguese, Brazilian.
 
