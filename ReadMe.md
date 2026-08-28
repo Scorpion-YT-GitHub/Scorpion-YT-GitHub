@@ -11,6 +11,8 @@ I like furries, but i am unsure if i am one of them.
 (Expie my beloved)
 My main language is Portuguese, Brazilian.
 
+I have some major demotivation problems, don't expect to see my projects to get published so soon.
+
 My username in most of videogames is Naroshi, but if you are trying to find me on the videogame called "Roblox", my original username is "ZiggyStarGames".
 
 
