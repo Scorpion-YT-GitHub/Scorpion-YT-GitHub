@@ -7,8 +7,8 @@ I'm currently learning Python, JS, lua, Java and HTML.
 
 Pronouns: She/her.
 
-I love furries, but i am unsure if i am one of them.
-
+I like furries, but i am unsure if i am one of them.
+(Expie my beloved)
 My main language is Portuguese, Brazilian.
 
 My username in most of videogames is Naroshi, but if you are trying to find me on the videogame called "Roblox", my original username is "ZiggyStarGames".
